@@ -1,2 +1,1 @@
-# elelpark88-maker-GBFR-CACULATOR
 CACULATOR
